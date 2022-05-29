@@ -1,2 +1,2 @@
-# Actividad 7
+# Actividad/7
 Página Globalización
